@@ -1,3 +1,3 @@
 # Jin
 <br>
-Author- Shahmeer Niazi
+Author- Shahmeer Mateen Khan
